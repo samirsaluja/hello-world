@@ -1,5 +1,5 @@
 # hello-world
-My trough for public sharing
+Trough for public sharing
 
 
 Samir Saluja is a principal and founding partner of Derive One LLC and its joint venture with Olson Zaltman, OZD1 which has built Simile metaphor measurement tools and methods. Find him on LinkedIn at https://www.linkedin.com/in/samirsaluja/
